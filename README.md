@@ -3,5 +3,5 @@
 1°do ensino médio 
 -💗 gosto muito de ir na igreja 
 -💐 esse perfil é para uso pedagógico 
-[sou dorameira]
-[sou torcedora do santos] 
+[sou dorameira]https://tenor.com/hpUJj1A690X.gif
+[sou torcedora do santos]https://tenor.com/p5Aa45YyuzR.gif 
